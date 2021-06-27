@@ -1,0 +1,1 @@
+" Até o momento estou amando o curso. já era da area tech mas nunca tinha usado GIT...  Acredite se quiser kkkk"
